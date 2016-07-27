@@ -1,5 +1,5 @@
 # hello-world
-LIGHT THE INDUSTRY BRIGHTER
+LIGHT THE INDUSTRY BRIGHTER.
 Am an innovative, committed, reliable, open minded and driven for result individual, with diverse knowledge and broad experience in computer information systems that include; Data Security and management, Computer networks and cyber security, systems development, operations and maintenance, and networking. I have diverse experience in IT strategies for business forecast, customization of document management workflow, workflow analysis, risk analysis, and systems integrations with ERP systems (Microsoft Navision dynamics and AX). I am knowledgeable in data management and analysis, corporate sales and marketing of computer accessories; hardware and software. I have excellent relation and networking skills attained overtime due to wide experience working with National, International companies and NGOs. I also have strong interpersonal and problem solving skills. I easily adopt to change and cope with pressure and setbacks. 
 My career objective is to obtain a challenging and a rewarding career as a computer security and support specialist.
 
